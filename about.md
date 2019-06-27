@@ -8,7 +8,7 @@ This is my Blog about some Skills.
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+Welcome follow my twitter @Osirisoo0O !
 
 ### Contact me
 
